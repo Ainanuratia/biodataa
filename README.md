@@ -1,0 +1,6 @@
+- Nama : Aina Nuratia
+- Tempat dan tanggal lahir : Pemalang 07 Mei 2005
+- Alamat : Gunungjaya, Belik, Pemalang
+- Jenis kelamin : Perempuan
+- Agama : Islam
+- Sekolah : STMIK Widya Utama Purwokerto
